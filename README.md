@@ -1,0 +1,2 @@
+# premium-zither-building-001-zither-building-hammered-dul
+Ever dreamt of building your own hammered dulcimer but felt overwhelmed by complex woodworking and precise tuning? This workshop turns that dream into a rewarding craft project - no prior luthier experience required.  This workshop solves the intimidation of instrument building by breaking down the entire process of zither building into manageable,
